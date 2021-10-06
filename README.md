@@ -1,5 +1,5 @@
-lop-10A06-nhom_03
-BẬC THẦY CÔNG NGHỆ =))
+lop-10A06-nhom
+_____________________________________
 Lưu Trang Vy 
 Nguyễn Thị Quỳnh Trang
 Lê Võ Yến Nhi
